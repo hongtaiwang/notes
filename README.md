@@ -1,1 +1,1 @@
-# do the right thing
+# DO THE RIGHT THING
